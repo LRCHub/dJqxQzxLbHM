@@ -1,0 +1,113 @@
+# Pharrell Williams – ハッピー
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+It might seem crazy
+what I'm about to say
+Sunshine she's here
+you can take a break
+I'm a hot air balloon
+that could go to space
+With the air like I don't care
+baby by the way
+Because I'm happy
+Clap along if you feel
+like a room without a roof
+Because I'm happy
+Clap along if you feel like
+happiness is the truth
+Because I'm happy
+Clap along if you know
+what happiness is to you
+Because I'm happy
+Clap along if you feel like
+that's what you wanna do
+Here comes bad news
+talking this and that, yeah!
+Well gimme all you got and
+don't hold back, yeah!
+Well I should probably warn you
+I'll be just fine, yeah!
+No offense to you,
+don't waste your time,
+here's why!
+Because I'm happy
+Clap along if you feel
+like a room without a roof
+Because I'm happy
+Clap along if you feel like
+happiness is the truth
+Because I'm happy
+Clap along if you know
+what happiness is to you
+Because I'm happy
+Clap along if you feel like
+that's what you wanna do
+(Happy!) Bring me down,
+can't nothing
+(Happy!) Bring me down,
+my levels too high
+(Happy!) To bring me down,
+can't nothing
+(Happy!) Bring me down, I said
+Bring me down, can't nothing
+Bring me down,
+my levels too high
+To bring me down, can't nothing
+Bring me down, I said
+Because I'm happy
+Clap along if you feel
+like a room without a roof
+Because I'm happy
+Clap along if you feel like
+happiness is the truth
+Because I'm happy
+Clap along if you know
+what happiness is to you
+Because I'm happy
+Clap along if you feel like
+that's what you wanna do
+Because I'm happy
+Clap along if you feel
+like a room without a roof
+Because I'm happy
+Clap along if you feel like
+happiness is the truth
+Because I'm happy
+Clap along if you know
+what happiness is to you
+Because I'm happy
+Clap along if you feel like
+that's what you wanna do
+Bring me down, can't nothing
+Bring me down,
+my levels too high
+To bring me down, can't nothing
+Bring me down, I said
+Because I'm happy
+Clap along if you feel
+like a room without a roof
+Because I'm happy
+Clap along if you feel like
+happiness is the truth
+Because I'm happy
+Clap along if you know
+what happiness is to you
+Because I'm happy
+Clap along if you feel like
+that's what you wanna do
+Because I'm happy
+Clap along if you feel
+like a room without a roof
+Because I'm happy
+Clap along if you feel like
+happiness is the truth
+Because I'm happy
+Clap along if you know
+what happiness is to you
+Because I'm happy
+Clap along if you feel like
+that's what you wanna do
+Come on...
+```
